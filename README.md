@@ -8,7 +8,7 @@
 - 👯 I’m looking to collaborate on innovative tech projects and sustainable software solutions.
 - 🤔 I’m looking for help with integrating AI and ML into my projects for enhanced efficiency.
 - 💬 Ask me about web development, project management, or how to create impactful tech ideas.
-- 📫 How to reach me: [ravinduyasas@gmail.com](mailto:ravinduyasas@gmail.com)
+- 📫 How to reach me: [subasingheravindu@gmail.com](mailto:subasingheravindu@gmail.com)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love cars and enjoy capturing scenic drives through photography.
 
